@@ -1,2 +1,2 @@
-thekachorihub
+The Kachori Hub
 
